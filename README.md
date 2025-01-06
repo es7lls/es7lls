@@ -35,9 +35,8 @@ Confira algumas das minhas animações e designs em ação!
 
 ## 🧑‍💻 Vamos nos conectar?
 
-- 📧 **Email**: seuemail@dominio.com
-- 🌐 **Portfólio**: [seuportfólio.com](http://seuportfólio.com)
-- 🔗 **LinkedIn**: [seu-linkedin](https://www.linkedin.com/in/seu-linkedin)
+- 📧 **Email**: [afvecna@gmail.com](afvecna@gmail.com)
+- 🔗 **LinkedIn**: [[seu-linkedin](https://www.linkedin.com/in/ericknander/)
 
 ---
 
